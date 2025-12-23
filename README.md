@@ -1,2 +1,2 @@
 # GiraffeMod
-Is tried automatic title.
+BYE MOD: Penguin
